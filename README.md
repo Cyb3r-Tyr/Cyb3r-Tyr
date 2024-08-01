@@ -1,0 +1,5 @@
+- 🎩 Hi, I’m @Cyb3r-Tyr
+- 👀 I’m interested in Hacking
+- 👃 I’m currently learning everything (about cybersecurity)
+- 👅 I’m looking to collaborate on creation of new gadgets, virus, ...
+- languages: 🇵🇹🇱🇺🇫🇷🇩🇪🇬🇧🇪🇸🇷🇺
